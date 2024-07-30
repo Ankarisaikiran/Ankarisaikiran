@@ -1,4 +1,4 @@
-👋 Hey Hi, Welcome to my GitHub profile I'm Ankari Saikiran 
+👋 Hey Hi, Welcome to my GitHub profile I'm Saikiran Ankari
  
 About me ❓ 
 ⏩  👀 I’m currently looking for data analyst role 
